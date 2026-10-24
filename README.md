@@ -1,5 +1,3 @@
-<img width="300" height="300" alt="3dgifmaker23879" src="https://github.com/user-attachments/assets/af6c1edb-657c-4f21-b10c-ccb0f840d08e" />
-
-
-
+<picture>
+<img alignalt="3dgifmaker61701" width="500" height="500" src="https://github.com/user-attachments/assets/82d50d6f-d3b1-4626-81a0-b5370a976373" />
 
