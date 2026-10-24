@@ -1,3 +1,8 @@
 <picture>
-<img alignalt="3dgifmaker61701" width="500" height="500" src="https://github.com/user-attachments/assets/82d50d6f-d3b1-4626-81a0-b5370a976373" />
+<img align="left" height="300" alt="3dgifmaker61701" src="https://github.com/user-attachments/assets/ed1e0568-88a3-46c8-a432-61ac488da9c9" />
+
+wip
+
+
+
 
