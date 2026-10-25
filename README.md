@@ -1,4 +1,6 @@
 <p align="center">
 <picture>
-<img width="300" height="300" alt="3dgifmaker24083" src="https://github.com/user-attachments/assets/197e1572-99ea-437c-bc68-d579af81e22b" />
+<img width="504" height="278" alt="0a9f94f1-9cae-48ac-bac3-efc32ed73630" src="https://github.com/user-attachments/assets/b8896daa-8bf3-4baf-a1bb-d32599efeab4" />
+
+
 
