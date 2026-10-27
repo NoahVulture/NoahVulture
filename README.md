@@ -25,4 +25,14 @@ People who joke around about suicide please also DNI. Even if its fictional deat
 
 <br clear="left">
 
+<div align="center">
 
+  ### EXTRA 
+
+  <div align="center">
+
+<img width="376" height="330" alt="ezgif-cropped (1)" src="https://github.com/user-attachments/assets/ccf351d2-6e20-468c-8c11-f6ba6325ff0d" />
+
+<div align="center"> 
+I LOVE Twenty One pilots
+Seriously, mention them and I will HAVE to be your friend omg.
