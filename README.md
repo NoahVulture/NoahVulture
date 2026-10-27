@@ -19,7 +19,7 @@ I like to roleplay so you might see me as my ocs around docks!
   
 problematic TCC please please DNI, if you glamorize bad people it genuinely makes me sick. stop.
 
-People who joke around about suicide please also DNI. Even if its fictional death I don't wanna hear it. you're still choosing to joke around about serious topics, a topic of which i've lost one of my friends to.
+People who joke around about suicide please also DNI. The only exception for this is if your talking about yourself??? but its still off putting for me.
 </details>
 
 
