@@ -22,17 +22,3 @@ problematic TCC please please DNI, if you glamorize bad people it genuinely make
 People who joke around about suicide please also DNI. The only exception for this is if your talking about yourself??? but its still off putting for me.
 </details>
 
-
-<br clear="left">
-
-<div align="center">
-
-  ### EXTRA 
-
-  <div align="center">
-
-<img width="376" height="330" alt="ezgif-cropped (1)" src="https://github.com/user-attachments/assets/ccf351d2-6e20-468c-8c11-f6ba6325ff0d" />
-
-<div align="center"> 
-I LOVE Twenty One pilots
-Seriously, mention them and I will HAVE to be your friend omg.
