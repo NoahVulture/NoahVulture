@@ -22,3 +22,5 @@ problematic TCC please please DNI, if you glamorize bad people it genuinely make
 People who joke around about suicide please also DNI. The only exception for this is if your talking about yourself??? but its still off putting for me.
 </details>
 
+
+Im big on music, [heres](https://noahsmusictatse.straw.page) what I like!
