@@ -4,6 +4,9 @@
 
 
 ### About me:
+
+<a href="https://hits.sh/github.com/parameowia/"><img alt="Hits" src="https://hits.sh/github.com/parameowia.svg?color=000000&labelColor=000000"/></a>
+
 Hello! My name is Noah
 
 I use he/him pronouns
