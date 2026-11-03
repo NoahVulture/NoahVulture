@@ -36,6 +36,14 @@ Im big on music, [heres](https://noahsmusictatse.straw.page) what I like!
 <img width="150" height="20" alt="tumblr_5997b52d85831ff87e0500c75981d298_7f0188d7_250" src="https://github.com/user-attachments/assets/9b856446-2cea-4373-b717-32e738bacad8" />
 
 
+  
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kfscake2yecfhbnmlfm4gobl6m&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=true&profanity=false&hide_remaster=false&bar_color=ffffff" width="200">
+  </a>
+</p>
+
 
 
 
