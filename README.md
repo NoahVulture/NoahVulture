@@ -30,6 +30,11 @@ Im big on music, [heres](https://noahsmusictatse.straw.page) what I like!
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/269b1357-8e51-4290-974e-dbc044203cad" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6da4ea0d-92cc-4442-b34f-f924f8424cbe" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/83e5147d-44c4-453f-9aa3-b46ab8514810" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a5ff2602-7de7-42c5-8adb-0332a1017913" />
+
+<img width="150" height="20" alt="h16" src="https://github.com/user-attachments/assets/c08c6ad1-8469-4f0b-bfb7-7ffa5190b634" />
+<img width="150" height="20" alt="tumblr_5997b52d85831ff87e0500c75981d298_7f0188d7_250" src="https://github.com/user-attachments/assets/9b856446-2cea-4373-b717-32e738bacad8" />
+
 
 
 
