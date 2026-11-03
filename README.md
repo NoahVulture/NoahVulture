@@ -24,3 +24,13 @@ People who joke around about suicide please also DNI. The only exception for thi
 
 
 Im big on music, [heres](https://noahsmusictatse.straw.page) what I like!
+
+
+<img width="101" height="57" alt="dashee6-67190e2b-dcfb-44f6-81db-b287bd712783" src="https://github.com/user-attachments/assets/a5cef78e-cf5c-43a3-8b88-6a63e08d80cb" /> 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/269b1357-8e51-4290-974e-dbc044203cad" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6da4ea0d-92cc-4442-b34f-f924f8424cbe" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/83e5147d-44c4-453f-9aa3-b46ab8514810" />
+
+
+
+
