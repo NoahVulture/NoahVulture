@@ -10,7 +10,7 @@ I use he/him pronouns
 
 If youre seeing this its probably because you saw me in ponytown.
 
-Please never be shy to interact unless, I might be afk though!
+Please never be shy to interact, I might be afk though!
 
 I like to roleplay so you might see me as my ocs around docks!
 
