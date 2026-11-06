@@ -1,10 +1,3 @@
-<picture>
 <p align="center">
-<img width="800" alt="blur_edges (1) (1) (1)" src="https://github.com/user-attachments/assets/3ae65958-8548-4383-b341-f052de435d37" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=300&duration=5019&pause=1000&color=F7F7F7&width=435&lines=I+am+cold%2C+can+you+hear%3F;I+will+fly+with+no+hope%2C+no+fear;And+the+ground+taunts+my+wings;Plummet+as+I+sing;Plummet+as+I+sing" alt="Typing SVG" /></a>
 
-
-ㅤ
-
-<picture>
-<p align="center">
-  <img width="600" alt="New Project (84)" src="https://github.com/user-attachments/assets/5503ce92-708d-44fa-8a6a-5560e7740388" />
