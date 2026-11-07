@@ -1,2 +1,1 @@
-<picture>
-<p align="center">
+
