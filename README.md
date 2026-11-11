@@ -12,6 +12,12 @@
 <img width="101" height="57" alt="d7od6fh-bd6ee428-2883-4464-86ea-3beb99707e4e (1)" src="https://github.com/user-attachments/assets/6d2d6df2-8375-481c-aaad-f8b2755741ae" />
 <img width="101" height="57" alt="dazcxzk-6e5a8d4e-8ff6-4336-8bea-580a82d3b5a2 (1)" src="https://github.com/user-attachments/assets/887730cf-548d-46a6-994a-6edfdd585d91" />
 
+<p align="center">
+  <a href="https://noahvulture.straw.page"><img width="200" alt="New Project (89)" src="https://github.com/user-attachments/assets/14bb753d-bad8-45b3-b7be-015dcf310146" /></a>
+</p>
+<p align="center">
+  <a href="https://noahvulture.atabook.org/"><img width="200" alt="New Project (88)" src="https://github.com/user-attachments/assets/2ceae346-495f-436d-a20d-00f23217a848" /></a>
+</p>
 
 
 
