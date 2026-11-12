@@ -40,6 +40,3 @@
 
 
 
-
-<img width="294" height="294" alt="giphy (3)" src="https://github.com/user-attachments/assets/05a00100-7ebb-4744-b7cc-809ffce830ec" />
-
