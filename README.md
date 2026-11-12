@@ -2,8 +2,13 @@
 <p align="center">
 <img width="700" alt="userlmn_b2b6f5792be01faa54223b9ae67750f4 (3)" src="https://github.com/user-attachments/assets/9d6ee1b1-fb17-41f8-9b4e-3d3bfa7c2125" />
 
-![](https://komarev.com/ghpvc/?NoahVulture&color=c70706)
+<picture>
+<p align="center">
+<a href="https://hits.sh/github.com/NoahVulture/NoahVulture/edit/main/README.md/"><img alt="Hits" src="https://hits.sh/github.com/NoahVulture/NoahVulture/edit/main/README.md.svg?label=Veiws&color=c80000&labelColor=b9b9a7"/></a>
+ㅤ
 
+
+ㅤ
 <picture>
 <p align="center">
   <img width="500" alt="New Project (87)" src="https://github.com/user-attachments/assets/7d933a96-f8ea-4fbb-bfb1-c05f6f69f336" />
