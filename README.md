@@ -2,6 +2,9 @@
 <p align="center">
 <img width="700" alt="userlmn_b2b6f5792be01faa54223b9ae67750f4 (3)" src="https://github.com/user-attachments/assets/9d6ee1b1-fb17-41f8-9b4e-3d3bfa7c2125" />
 
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=100&color=C80000&center=true&width=435&lines=And+the+wrists+of+my+mind;have+the+bleeding+lines" alt="Typing SVG" /></a>
+</p>
 
 ㅤ
 <picture>
